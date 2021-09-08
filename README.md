@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jihanshohwatu
-- 🌱 I’m currently learning marketing with focus on data analyst
+- 🌱 I’m currently learning marketing with focused on data analyst
 - 📫 How to reach me please contact me through my LinkedIn and my email
 
 <!---
